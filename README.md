@@ -9,6 +9,5 @@ Smridhi Bhat - Email: bhatsmridhi@ufl.edu
 
 # Video Link
 
-https://uflorida-my.sharepoint.com/:v:/g/personal/aryansingh_ufl_edu/ESUTbwqZyI9Cr1fWxBkOj9EBL59Epqi_a2hKiEqnelSPwQ?e=WFJ3OV
-
+https://drive.google.com/file/d/1knIqSsXizHcvz2A09kebwfx309HkxTRe/view?usp=sharing
 
